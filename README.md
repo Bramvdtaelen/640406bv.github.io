@@ -1,2 +1,2 @@
 # 640406bv.github.io
-portfolio i2Talent
+De website staat gepubliceerd op: https://640406bv.github.io/index.html
